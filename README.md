@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Kyuthaa
-- 👀 I’m interested in shooting films of gaming
+- 👋 Hi, I’m maxwell kyutha
+- 👀 I’m a upcoming network engineer and a certified ethical hacker
 - 🌱 I’m currently learning at a high school in kenya and its my final year
 - 💞️ I’m looking to collaborate on creating any game or mod
-- 📫 How to reach me instagram@ kyutha.officiall, telegram@ Maxwell mkurugenzi 
+- 📫 How to reach me instagram@ wk.max 
 - 😄 Pronouns: ...
 - ⚡ Fun fact:what sound does a lion produce= kneee-aaargh
 
