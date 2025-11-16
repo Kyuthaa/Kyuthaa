@@ -1,8 +1,6 @@
 - 👋 Hi, I’m maxwell kyutha
-- 👀 I’m a upcoming network engineer and a certified ethical hacker
-- 🌱 I’m currently learning at a high school in kenya and its my final year
-- 💞️ I’m looking to collaborate on creating any game or mod
-- 📫 How to reach me instagram@ wk.max 
+- 👀 cybersecurity purple team and an ethical hacker
+- 💞️ I’m looking to collaborate on creating any game or mod  
 - 😄 Pronouns: ...
 - ⚡ Fun fact:what sound does a lion produce= kneee-aaargh
 
